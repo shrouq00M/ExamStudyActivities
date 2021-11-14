@@ -1,5 +1,5 @@
 
-## Together With your groups:
+## Together with your groups:
 
  - Create a Glossary of the 15 most important terms from Week 1.
 (15) Minutes.
