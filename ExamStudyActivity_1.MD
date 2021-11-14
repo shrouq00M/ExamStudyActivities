@@ -1,6 +1,8 @@
 
 ## Together with your groups:
 
+## Group 3
+
  - Create a Glossary of the 15 most important terms from Week 1.
 (15) Minutes.
 
